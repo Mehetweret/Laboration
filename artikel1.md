@@ -1,0 +1,3 @@
+Jens: 
+
+https://www.experts-exchange.com/articles/18548/Bitbucket-vs-GitHub-Which-is-Right-for-You.html?cid=Engage_Jul22&mkt_tok=eyJpIjoiTURWaVpUTmlZVEZtWkdVdyIsInQiOiJvN252cDNJNWswSGxFSXFyYnk2R0NOMnByWlJhemZHV2pkVm5DN2lxb2VwSVFkVXdjZjhLZ3VoUEhBenQxd0UyVUJUbWxKcGRneVg2UmxVdE5JdWtlUDZpc2wyTFJ4OG9zdTlHdURoQlNKYz0ifQ%3D%3D
